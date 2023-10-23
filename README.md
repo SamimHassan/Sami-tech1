@@ -1,1 +1,0 @@
-# Sami-tech1
